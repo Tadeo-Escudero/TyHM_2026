@@ -21,7 +21,7 @@ Mediación de Materiales TyHM 2026
 | Clasica y moderna | https://github.com/santiago-perezvicchi10/Entrega> | María Guadalupe ,Sfragara	Luciano ,Zoia	Julián ,.	Joaquín , .	Santiago Perez Vicchi  |
 | Concejo de sabios |  |//	Pedro, Spongia,	Joaquín Spongia, Facundo Perea, García 	Leslie Rocío ,//	Joaquín  |
 | Dybala a Boca |  | Santiago Joaquín Peña, Sebastian Ezequiel ,Tomas flores ,Numa Barriga Maldonado , Ivan Rodriguez  |
-| Error 404 |  | Lisandro Ezequiel Martin , Tadeo Gabriel, Josefina Perez  |
+| Error 404 |  | Lisandro Portaluri, Ezequiel Choque, Tadeo Escudero, Josefina Perez, Nicolas Blanco, Marcos Boero  |
 | Gordillos Siuu |  | .	Juan González Ignacio ,	Pilar Zuñiga , Euillades	Santiago , Huenchuguala	Joaquin ,.	Celeste |
 | JIBS |  |.	Marcia Benegas ,.	Gonzalez Gonzalo, Egea	Sebastián, -	Simonovich Jael Gisel ,  	Juan Ignacio Ristagno   |
 | Joulie Faraday |  | Mauricio Jesús Mansur Emanuel Mattia Malnis  Valentino Giampietri  Ana Clara Godoy |
